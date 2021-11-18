@@ -1,1 +1,0 @@
-# https://vryzhkova.github.io/index-food/
